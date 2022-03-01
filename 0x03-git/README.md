@@ -1,1 +1,1 @@
-ALX is amazing
+ALX is school is up to date.
